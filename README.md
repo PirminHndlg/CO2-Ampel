@@ -10,5 +10,3 @@ Am Besten ist es wenn man sich alle Dateien herunterlädt und dann am Computer d
 Alle Schritte in der pdf-Verfolgen
 
 
-
-von Pirmin
