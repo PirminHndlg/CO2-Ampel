@@ -7,3 +7,8 @@ Im Ordner befindet sich eine pdf-Datei. Dort ist die komplette Anleitung. Außer
 
 Am Besten ist es wenn man sich alle Dateien herunterlädt und dann am Computer damit arbeitet.
 
+Alle Schritte in der pdf-Verfolgen
+
+
+
+von Pirmin
